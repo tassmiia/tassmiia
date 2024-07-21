@@ -11,4 +11,4 @@
 
 💌 Reach me at khantasmia786@gmail.com <br>
 
-🐱 Fun fact: I adore cats 🩷 and binge-watching K-dramas!🍜
+🐱 Fun fact: I adore cats 🩷🍜
