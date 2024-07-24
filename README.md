@@ -9,6 +9,6 @@
 
 💬 Let's chat about all things Front End Development   <br>
 
-💌 Reach me at khantasmia786@gmail.com <br>
+💌 Reach me at contact.tasmiia@gmail.com <br>
 
 🐱 Fun fact: I adore cats 🩷🍜
